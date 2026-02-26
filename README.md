@@ -1,0 +1,2 @@
+# a8f483e9-434e-4195-a835-47f695f15822-hero-2
+Hero section variant 2 for a8f483e9-434e-4195-a835-47f695f15822
